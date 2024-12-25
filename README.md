@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-⚡ I always try my best to find happiness in life and share it. If I often appear by your side, it is because I feel very happy with you.
+⚡ I do my best to seek happiness in life and spread it around. If you often find me by your side, it’s simply because being with you brings me joy.
 
